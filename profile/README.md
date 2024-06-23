@@ -4,7 +4,7 @@
 
 **✔️▶ คลิกที่นี่เพื่อดู [➤ ใจซ่อนรัก EP.1 ตอนที่ 1  ฟรี ซับไทย](https://hajsgdhuajsdas.github.io/TheSecretofUs/)**
 
-![Screenshot_83]([https://github.com/TheSecretofUs/.github/assets/173619608/92e7a74e-1d14-4bb5-8b8d-22792a318bdb](https://hajsgdhuajsdas.github.io/TheSecretofUs/))
+![Screenshot_83](https://github.com/TheSecretofUs/.github/assets/173619608/92e7a74e-1d14-4bb5-8b8d-22792a318bdb)
 
 
 เนื้อเรื่องย่อของ "ใจซ่อนรัก" ตอนที่ 1
